@@ -11,6 +11,7 @@ Following documents are required to register and travel with your kid.
 - ✨Child Allowance  / Kindergeld ✨
 - ✨Reispass / Passport✨
 - ✨Resident Permit/  Aufenthaltsgenehmigung ✨
+
 For me the total Journey from Birth till ausweis delivery was 2 months
 ## Steps 
 
