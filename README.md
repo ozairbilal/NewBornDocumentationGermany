@@ -27,7 +27,7 @@ For me the total Journey from Birth till ausweis delivery was 2 months
     -   Proof of residence
 - Within few days you will receive the email for the appointment at the Stadamt for the Gebustkunde, if you want to expedite the process you can send email to relevant Stadamt based on the are yur child was born in.
 - On the day of appointment, child and parents must be present and preferably german translator, if you need English officer you can request via email. 
-    - You will receive 3 Geburstkunde (noraml, for Kindergeld, for Elterngeld)
+    - You will receive 3 Geburstkunde (normal, for Kindergeld, for Elterngeld)
     - You shall Request for additional 2 International Birth Certificates which you will need for NICOP and Passport (in case of Pakistan)
 - Now you can apply for NICOP , [ Elterngeld ](https://elterngeld-digital.de/ams/Elterngeld) and [ Kindergeld ](https://www.arbeitsagentur.de/familie-und-kinder/infos-rund-um-kindergeld/kindergeld-anspruch-hoehe-dauer/kindergeld-antrag-starten)
 - Once you have the Birth Certificte, either of the parents from their [ Nadra Account ](https://id.nadra.gov.pk/e-id/) can apply for the new born NICOP online.
