@@ -39,4 +39,4 @@ For me the total Journey from Birth till ausweis delivery was 2 months
 
 
 ### Additional Links
-[Berlin Appointment for New Born Registeration](https://service.berlin.de/dienstleistung/324269/)
+[Berlin Appointment for New Born Registration](https://service.berlin.de/dienstleistung/324269/)
